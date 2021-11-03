@@ -1,0 +1,7 @@
+![page1](D:\Notes of Stefan Vutev\Множества\1.jpg)
+![page2](D:\Notes of Stefan Vutev\Множества\2.jpg)
+![page3](D:\Notes of Stefan Vutev\Множества\3.jpg)
+![page4](D:\Notes of Stefan Vutev\Множества\4.jpg)
+![page5](D:\Notes of Stefan Vutev\Множества\5.jpg)
+![page6](D:\Notes of Stefan Vutev\Множества\6.jpg)
+![page7](D:\Notes of Stefan Vutev\Множества\7.jpg)
